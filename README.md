@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi Love me, love my dog. 👋
 
 <!--
 **lishenming8126l/lishenming8126l** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
